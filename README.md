@@ -21,9 +21,9 @@
 
 &emsp;&emsp;[《别当欧尼酱了！》 第10集.mp4](https://easylink.cc/ce4utm)
 
-&emsp;&emsp;[《别当欧尼酱了！》 第11集 .mp4](https://easylink.cc/8yuix1)
+&emsp;&emsp;[《别当欧尼酱了！》 第11集 .mp4](https://easylink.cc/5zzjts)
 
-&emsp;&emsp;[《别当欧尼酱了！》 第12集 .mp4](https://easylink.cc/m35kw9)
+&emsp;&emsp;[《别当欧尼酱了！》 第12集 .mp4](https://easylink.cc/cwsyti)
 ## 《间谍过家家》链接：
 &emsp;&emsp;[间谍过家家 1.mp4](https://easylink.cc/p9injl)
 
