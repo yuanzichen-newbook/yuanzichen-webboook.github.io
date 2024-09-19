@@ -3,7 +3,7 @@
 ## 《别当欧尼酱了》链接：
 &emsp;&emsp;[《别当欧尼酱了！》 第01集 .mp4](https://easylink.cc/6zt6tx) 
 
-&emsp;&emsp;[《别当欧尼酱了！》 第02集 .mp4](https://easylink.cc/7j5n0k)
+&emsp;&emsp;[《别当欧尼酱了！》 第02集 .mp4](https://easylink.cc/u7z4mw)
 
 &emsp;&emsp;[《别当欧尼酱了！》 第03集.mp4](https://easylink.cc/y72vhv)
 
@@ -15,7 +15,7 @@
 
 &emsp;&emsp;[《别当欧尼酱了！》 第07集 .mp4](https://easylink.cc/iz5xdp)
 
-&emsp;&emsp;[《别当欧尼酱了！》 第08集 .mp4](https://easylink.cc/9n2gh0)
+&emsp;&emsp;[《别当欧尼酱了！》 第08集 .mp4](https://easylink.cc/g9npf2)
 
 &emsp;&emsp;[《别当欧尼酱了！》 第09集 .mp4](https://easylink.cc/e99460)
 
