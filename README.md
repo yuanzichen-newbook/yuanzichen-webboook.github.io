@@ -1,5 +1,4 @@
 # yuanzichen-newbook子站
-# 由于9.21要考试，时间紧张，目前暂时不维护
 # 红星照耀中国链接
 &emsp;&emsp;[红星照耀中国[DVD版] 第01集.mp4](https://easylink.cc/tlagux)
 
