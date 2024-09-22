@@ -1,5 +1,4 @@
-# yuanzichen-newbook子站
-# 红星照耀中国链接
+
 &emsp;&emsp;[红星照耀中国[DVD版] 第01集.mp4](https://easylink.cc/tlagux)
 
 &emsp;&emsp;[红星照耀中国[DVD版] 第02集.mp4](https://easylink.cc/w2etdj)
